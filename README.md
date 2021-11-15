@@ -1,3 +1,4 @@
 
 # Organo-website-design
-![food-fruits-and-vegetables-wallpaper-preview](https://user-images.githubusercontent.com/89648370/141782221-1274f0e9-cc72-4747-b37d-e7fa92447be3.jpg)
+![Organo jpeg format](https://user-images.githubusercontent.com/89648370/141782526-134dda17-1c28-480b-97f3-3ac5cf98722f.jpeg)
+
